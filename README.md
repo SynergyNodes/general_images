@@ -1,1 +1,1 @@
-General Iamges
+General Images
